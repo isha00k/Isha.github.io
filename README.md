@@ -1,1 +1,1 @@
-# Isha.github.io
+# lifestyle-store-website-project
